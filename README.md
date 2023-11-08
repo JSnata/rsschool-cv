@@ -1,1 +1,1 @@
-# rsschool-cv
+https://JSnata.github.io/rsschool-cv/
