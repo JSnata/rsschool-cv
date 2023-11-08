@@ -1,1 +1,1 @@
-https://JSnata.github.io/rsschool-cv/cv
+https://JSnata.github.io/rsschool-cv/
